@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Athul Satheesh( @athulSat)
-- 👀 I’m interested in diving deep into the world of electronics 🪫
 - 🌱 I’m currently learning 
 - 📫 How to reach me : Email:athul28satheesh@gamil.com
 
