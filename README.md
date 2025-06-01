@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Athul Satheesh( @athulSat)
-- 🌱 I’m currently learning 
+- 🌱 Interested in Electronics and programming
 - 📫 How to reach me : Email:athul28satheesh@gamil.com
 
 <!---
